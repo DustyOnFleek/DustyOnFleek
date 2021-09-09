@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DustyOnFleek, I'm a 15 years old boy from Algeria
+- 👀 I’m interested in medicine, computer science, aviation, things related to space and video games.
+- 🌱 I’m currently learning Java, JavaScript, Python, and other languages.
+- 📫 You can contact me on discord, here's my tag: Dusty#5957
